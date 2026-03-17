@@ -1,0 +1,1 @@
+# raya-hotel-p.o.s.
